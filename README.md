@@ -1,6 +1,6 @@
 # Hey 👋
 
-Hi!👋 My name is Evin, and I'm a student at the University of Virginia, majoring in Computer Science in the School of Engineering. 
+Hi!👋 My name is Evin, and I'm a student at the University of Virginia, majoring in Computer Science in the School of Engineering & Applied Science. 
 
 In my free time, I enjoy couponing, advocating for underrepresented communities, traveling🌎, trying new foods🍽️, and spending time at the beach with my two dogs—Max, a Husky and German Shepherd mix, and Duke, a Belgian Malinois🏖️🐕.
 
